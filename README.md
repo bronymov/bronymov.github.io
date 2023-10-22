@@ -1,1 +1,0 @@
-# bronymov.github.io
